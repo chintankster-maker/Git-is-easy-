@@ -1,1 +1,1 @@
-I am going to learn always 
+I am going to learn forever new things 
